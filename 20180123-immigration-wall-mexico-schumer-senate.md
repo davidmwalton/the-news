@@ -4,10 +4,13 @@ Wall Is ‘Off the Table,’ Schumer Says, in light of Republican-led shutdown
 
 Image
 
-“The wall offer’s off the table,” Senator Chuck Schumer of New York, the Democratic leader, told reporters at the Capitol on Tuesday.CreditEric Thayer for The New York Times
+“The wall offer’s off the table,” Senator Chuck Schumer of New York, the Democratic leader, told reporters at the Capitol on Tuesday.
+
+Credit
+Eric Thayer for The New York Times
 
 By Sheryl Gay Stolberg and Maggie Haberman
-Edited severely by David Walton
+Edited severely by David Walton & Kyle Campbell
 
 Jan. 23, 2018
 
@@ -15,17 +18,15 @@ WASHINGTON — Senate Democratic leader withdrew the biggest gesture he had made
 
 “The wall offer’s off the table,” the leader, Senator Chuck Schumer of New York, told reporters at the Capitol a day after senators managed a 2.5 week Continuing Resolution. This is the third CR to date.
 
-Republican leadership has failed to pass a budget, despite holding majorities in both the house and senate as well as the presidency. What makes this a historical first is that this failure of leadership has led to a government shutdown. Typically, the threat of a government shutdown is used by congress led by one party as a tool to achieve a veto-proof bill to be signed by a president of the opposing party. It is notable that given Republican majorities, the GOP did not simply utilize budget reconciliation to pass a budget without Democratic party support.
+Congress has, historically, leveraged the risk of a government shutdown as a negotiation tool to achieve a bill to be signed by a president of the opposing party. Despite holding majorities in both the House and Senate, as well as the seat of the presidency, Republicans have, in a historical first given their control, failed to pass a budget. 
 
-In contrast, Schumer was willing to put party differences aside in order to assure the fate of Dreamers. "During the meeting, in exchange for strong [Deferred Action for Childhood Arrivals (DACA)] protections, I reluctantly put the border wall on the table for the discussion. Even that was not enough to entice the president to finish the deal," Schumer said from the Senate floor early Saturday.
- 
-But Schumer said that the president, while initially seeming interested, refused the agreement. (source: http://thehill.com/homenews/senate/370327-schumer-offer-on-border-wall-is-off-the-table)
+Schumer, however, was willing to put party differences aside in order to assure the fate of Dreamers. "During the meeting, in exchange for strong [Deferred Action for Childhood Arrivals (DACA)] protections, I reluctantly put the border wall on the table for the discussion. Even that was not enough to entice the president to finish the deal," Schumer said from the Senate floor early Saturday.
 
-Mr. Schumer’s decision to renege, made on Sunday but revealed publicly on Tuesday, marked another turn in the debate over how to shield from deportation hundreds of thousands of young immigrants brought to the country illegally as children- an expressed priority of the majority of both parties. Nevertheless, as part of a deal to end the shutdown, Senator Mitch McConnell, the majority leader, promised what he called a “fair and open” immigration debate on the Senate floor. This debate is only necessary in the first place, because despite the overwhelming support of DACA by both Democrats and Republicans, Trump repealed the executive action in September. That is, this a problem created by the whims of the Republican leadership.
+While the president initially seemed interested, according to Schumer, he has now refused the agreement. (source: http://thehill.com/homenews/senate/370327-schumer-offer-on-border-wall-is-off-the-table)
 
-But just when that debate will happen, and what legislation will serve as its starting point, was unclear on Tuesday. This is a pattern of the Trump administration which often changes its position or fails to clarify its previous statements. Several bipartisan groups were meeting to try to address the fate of the young undocumented immigrants, known as Dreamers. While republicans are claiming partisan recriminations on Schumer's part, Schumer made clear that his offer was made in the good faith that the GOP would accept & keep the government open. Trump & the GOP refused his offer Friday yet they blame Schumer for being partisan having rescinded his offer, today.
+Mr. Schumer’s decision to also renege now marks another turn in the debate over how to shield from deportation hundreds of thousands of young immigrants brought to the country illegally as children — an expressed priority from the majority of both parties. Despite DACA itself previously carrying strong bipartisan support, President Trump repealed it by executive order in September. As a consequence of this action, and as part of a deal to end the shutdown, Senate Majority Leader Mitch McConnell has promised what he called a “fair and open” immigration debate on the Senate floor.
 
-Perhaps the author of the Art of the Deal might help explain that when an offer is refused, it is perfectly reasonable for the negotiating party to revise their offer as negotiations continue.
+Just when that debate will happen, and what legislation will serve as its starting point, was unclear on Tuesday. The Trump administration has changed its position on Dreamers and has yet to clarify its contrasting statements. Several bipartisan groups have met in an attempt to address the fate of the young undocumented immigrants. Republicans are now claiming partisan recriminations on Schumer's part, while Schumer made clear that his offer was made in good faith that the GOP would accept and keep the government open. Trump and the Republican leadership  refused his offer Friday and have now blamed Schumer for being partisan in rescinding his offer today. It is common negotiation practice, however, to restructure a proposal after it has been rejected.
 
 “If he wants a solution, that’s a step backward,” said Senator John Cornyn of Texas, the No. 2 Republican in the Senate. The Times was unable to ascertain from Cornyn how many steps forward or backward the president took when he refused the offer Friday.
 
