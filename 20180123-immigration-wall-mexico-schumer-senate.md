@@ -30,7 +30,7 @@ Just when that debate will happen, and what legislation will serve as its starti
 
 “If he wants a solution, that’s a step backward,” said Senator John Cornyn of Texas, the No. 2 Republican in the Senate. The Times was unable to ascertain from Cornyn how many steps forward or backward the president took when he refused the offer Friday.
 
-Further muddying the conversation and according to an established pattern of this administration, the White House refuses to acknowledge the offer that Senate leaders on both sides of the aisle have confirmed.
+The White House has, again, unnecessarily muddied the conversation -- in this case by refusing to acknowledge the offer that Senate leaders on both sides of the aisle have confirmed.
 
 “Senator Schumer is trying to rescind an offer that he never made in the first place, and misled the public about,” said Sarah Huckabee Sanders, the White House press secretary. The veracity of this statement, as with all statements from the White House, is dubious. Were it not an official statement from the White House, it would not be fit to print.
 
